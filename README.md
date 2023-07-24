@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola!! soy Leonor Huanachin 
 
 <!--
 **Leonor-HC/Leonor-HC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
